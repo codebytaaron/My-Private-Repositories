@@ -13,4 +13,4 @@ If you are interested in:
 - receiving a walkthrough or demonstration
 - discussing collaboration or custom development
 
-Please reach out directly.
+Please reach out directly (link on my about me) 
